@@ -18,6 +18,6 @@ Supports numerous nations – The trade right now bolsters 226 nations around th
 
 Acknowledges cards – Coinmama acknowledges check cards alongside Visas gave by Visa or Mastercard.
 
-<ahref="https://coinpedia.org/exchange/coinmama-exchange/">Coinmama Fees</A>: 
+<a href="https://coinpedia.org/exchange/coinmama-exchange/">Coinmama Fees</A>: 
 
 In contrast with its adversaries, Coinmama's exchange charges are modestly high, with a 5.50% expense for every exchange. This charge alongside Bitcoin or Ethereum rate is appeared on Coinmama's site. Besides, Coinmama likewise charges an extra 5% expense on each credit and check card exchange. This expense is added once clients pick their strategy for installment. Likewise, clients need to pay Cash in Advance charge by their bank or card guarantor. Everything relies upon whether the monetary organization sees the exchange as a 'money' exchange or not. Contextual investigations completed by experts have proposed that clients should add an extra 10% in expenses while executing through Coinmama.
